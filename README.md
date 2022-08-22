@@ -1,2 +1,0 @@
-# gktropicalsprings.github.io
-gktropicalsprings
